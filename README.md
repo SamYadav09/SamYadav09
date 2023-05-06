@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning codes .
 - 💞️ I’m looking to collaborate soon
 - 📫 How to reach me contact me on Instgram , facebook , etc
-- ❤️Check out my youtube channel where is barely post - Sam yadav
+- ❤️Check out my youtube channel where i barely post - Sam yadav
 
 <!---
 SamYadav09/SamYadav09 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
